@@ -1,6 +1,7 @@
 ![image alt](https://github.com/Supreme-Angel/Supreme-Angel/blob/bc6c89ec6ae5a85b8adeaf7194167b7bc71affa3/Untitled667_20260728105016.png)
 
-𝑰'𝒎 𝒂𝒍𝒘𝒂𝒚𝒔 𝒐𝒇𝒇𝒕𝒂𝒃/𝒓𝒆𝒂𝒅𝒊𝒏𝒈 𝒐𝒓 𝒐𝒇𝒇𝒍𝒊𝒏𝒆 𝒇𝒐𝒓 𝒉𝒐𝒖𝒓𝒔 𝒃𝒆𝒄𝒂𝒖𝒔𝒆 𝒐𝒇 𝒔𝒄𝒉𝒐𝒐𝒍, 𝑰'𝒎 𝒆𝒊𝒕𝒉𝒆𝒓 𝒘𝒊𝒕𝒉 𝒇𝒓𝒊𝒆𝒏𝒅𝒔 𝒐𝒓 𝒄𝒐𝒎𝒑𝒍𝒆𝒕𝒆𝒍𝒚 𝒂𝒍𝒐𝒏𝒆. :: 𝑰 𝒍𝒊𝒌𝒆 𝑮𝒂𝒃𝑽𝟏𝒆𝒍 
+I really love Gabriel okay? 
+very peak... 
 <!--
 **Supreme-Angel/Supreme-Angel** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
