@@ -3,5 +3,7 @@
 I really love Gabriel okay? 
 very peak... 
 
+<img src="https://github.com/Supreme-Angel/Supreme-Angel/blob/c1efd3deb5cd7de327ef0a2a2825bde2a262c892/gabv1el-gabriel-ultrakill.webp" width="50" />
 
-![image alt](https://github.com/Supreme-Angel/Supreme-Angel/blob/c1efd3deb5cd7de327ef0a2a2825bde2a262c892/gabv1el-gabriel-ultrakill.webp)
+$${\color{red}i \space love \space gabv1el}$$
+
