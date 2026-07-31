@@ -5,5 +5,4 @@ very peak...
 
 <img src="https://github.com/Supreme-Angel/Supreme-Angel/blob/c1efd3deb5cd7de327ef0a2a2825bde2a262c892/gabv1el-gabriel-ultrakill.webp" width="50" />
 
-$${\color{red}i \space love \space gabv1el}$$
-
+**Iwec.** 
