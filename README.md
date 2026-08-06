@@ -1,3 +1,5 @@
+[![Typing SVG](https://readme-typing-svg.demolab.com/?lines=machine...+I+will+cut+you+down...+;readme+Wip)](https://git.io/typing-svg)
+
 ![Alt Text](https://github.com/Supreme-Angel/Supreme-Angel/blob/057689764f3d66718683cd7948f3029ca0c023c9/Untitled667_20260806225418.png)
 
 
