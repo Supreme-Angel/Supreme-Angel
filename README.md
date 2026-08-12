@@ -9,6 +9,7 @@
 $${\color{#5063A1}hi \space pls \space int\space with \space caution!}$$
 
 $${\color{#8DADFF}this \space angel \space is\space fragile \space and \space you  \space might \space break \space their \space heart !! }$$
-
+![alt text](https://github.com/Supreme-Angel/Supreme-Angel/blob/d963f5fa2c8769a7c58b6d68388909cb43b12983/Untitled673_20260804085242.png)
+![alt text](https://github.com/Supreme-Angel/Supreme-Angel/blob/d963f5fa2c8769a7c58b6d68388909cb43b12983/Untitled707_20260813042117.png) ^_^ !!
 ![alt text](https://github.com/Supreme-Angel/hhh/blob/fbbe9a90d5ae2db54bc8793392481c9b29cbd5c9/Untitled697_20260811075454.png)
 wip.
