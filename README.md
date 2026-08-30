@@ -4,7 +4,7 @@ HUGEEEEE WIP T_T
 
 ![alt text](https://github.com/Supreme-Angel/Supreme-Angel/blob/a9270183a1d3033adcfb9f06c3efe2cf7ff1a425/Untitled765_20260828223014.png)
 
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Pacifico&size=29&pause=1000&color=8AD0B5&width=435&lines=Be+not+afraid+machine%2C+come+to+me...)](https://git.io/typing-svg)
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Pacifico&size=29&pause=1000&color=8AD0B5&width=435&height=56&lines=Be+not+afraid+machine%2C+come+to+me...;Show+me+who+you+truly+are.)](https://git.io/typing-svg)
 
 
 <a href="https://sweetbloodyx.atabook.org/">
