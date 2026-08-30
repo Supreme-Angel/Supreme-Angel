@@ -16,6 +16,7 @@ HUGEEEEE WIP T_T
 <pre style="max-height: 200px; overflow-y: auto;">
 𓊆ྀིᰔᩚ໒꒱𓊇ྀི ◠◠ Heavy Gabriel FickFicktionkin
 </pre>
- ➤ fandom iwec ^_^
+ ➤ fandom iwec ^_^ sometimes DNI..
+ ➤ I have boundaries ok.. respect it.
 
 ![alt text](https://github.com/Supreme-Angel/Supreme-Angel/blob/3d9683ad0efdc3cff13ecc59b6baa478a10d651b/Untitled768_20260829120902.png)
