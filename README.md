@@ -5,7 +5,7 @@ HUGEEEEE WIP T_T
 ![alt text](https://github.com/Supreme-Angel/Supreme-Angel/blob/a9270183a1d3033adcfb9f06c3efe2cf7ff1a425/Untitled765_20260828223014.png)
 
 <pre style="max-height: 200px; overflow-y: auto;">
-Do not be afraid, machine come at me.. Show me who you are.
+Do not be afraid machine, come at me.. Show me who you are.
 </pre>
 
 <a href="https://sweetbloodyx.atabook.org/">
