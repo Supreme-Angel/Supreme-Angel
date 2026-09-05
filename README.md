@@ -1,4 +1,7 @@
-HUGEEEEE WIP T_T
+<p align="center">
+  <img src="https://hits.sh/github.com/Supreme-Angel/Supreme-Angel.svg?style=plastic&label=Machines&extraCount=120&color=64b6bd&labelColor=1f3551&logo=Slig)](https://hits.sh/github.com/Supreme-Angel/Supreme-Angel/" alt="Hits">
+</p>
+
 ![alt text](https://github.com/Supreme-Angel/Supreme-Angel/blob/a9270183a1d3033adcfb9f06c3efe2cf7ff1a425/Untitled765_20260828222925.png)
 ![alt text](https://github.com/Supreme-Angel/Supreme-Angel/blob/312341d8d2a7dd59bb3c95ac62160cb3ed9339ee/ezgif.com-coalesce.gif)
 
