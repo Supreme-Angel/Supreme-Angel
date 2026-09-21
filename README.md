@@ -18,9 +18,12 @@
   <img src="https://github.com/Supreme-Angel/Supreme-Angel/blob/7f41dc4ea1fef875310d546baec97207545f4d60/Untitled773_20260829160906.png" width="150" align="left" alt="atabook">
 </a> 
 
- ➤ fandom iwec ^_^ sometimes DNI..
- 
- ➤ I have boundaries ok.. respect it.
+YOU WILL FOREVER SEEE ME WITHH <a href="https://github.com/LaffyTaffy-0)" target="_blank">@LaffyTaffy-0</a> <a href="https://github.com/Omi-lover)" target="_blank">@Omi-lover</a>
+
+very cool person !!
+<a href="https://github.com/gl0wingL1ght" target="_blank">@gl0wingL1ght</a>
+
+
 
 ![alt text](https://github.com/Supreme-Angel/Supreme-Angel/blob/3d9683ad0efdc3cff13ecc59b6baa478a10d651b/Untitled768_20260829120902.png)
 
