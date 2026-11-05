@@ -5,7 +5,8 @@
 
 ![Alt text](https://github.com/Supreme-Angel/Wip/blob/8875a439fa454688a5ddc478b861251677761166/Untitled5.2026.09.30-21.33.1_20261002103838.png)
 ![alt text](https://github.com/Supreme-Angel/Wip/blob/96b16cbd4a12788f23cb1c7088f12f9c1ec9ace4/Untitled13_20261001103045.png)
-my readmd looks better in light mode istg
+ $\color{#6AA9B8}{\text{test}}$
+ 
 [atabook](https://sweetbloodyx.atabook.org/)
 here's my Atabook for a while
 
@@ -14,5 +15,3 @@ here's my Atabook for a while
     <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31mfv7laoosneizcuwau4qs24qim&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&profanity=false&hide_remaster=false&bar_color=ffffff&bar_color_cover=false">
   </a>
 </p>
-
-$\color{red}{\text{red}}$
