@@ -9,7 +9,8 @@
 
 <div align="center">
 
-[AtaBook](https://sweetbloodyx.atabook.org/)
+[AtaBook](https://sweetbloodyx.atabook.org/)✦[Pronouns](https://pronouns.cc/@Supreme-Angel)
+
 
 </div>
 
