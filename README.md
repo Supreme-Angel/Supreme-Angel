@@ -7,8 +7,7 @@
 ![alt text](https://github.com/Supreme-Angel/Wip/blob/96b16cbd4a12788f23cb1c7088f12f9c1ec9ace4/Untitled13_20261001103045.png)
  $\color{#55454B}{\text{ultrakill geek}}$
 <p align="center">
-  <a href="[https://sweetbloodyx.atabook.org/">AtaBook</a> ✦ </p> <p align="center">
-  <a href="[https://pronouns.cc/@Supreme-Angel">Pronouns</a>
+  <a href="[https://sweetbloodyx.atabook.org/">AtaBook</a> ✦ </p> <a href="[https://pronouns.cc/@Supreme-Angel">Pronouns</a>
 </p>
 
 <p align="center">
